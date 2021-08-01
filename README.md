@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SkyyVR
+- 👀 I’m interested in games and music and podcast
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on websites
+- 📫 How to reach me I have a buisenn email which is: skyyvrbuisness@gmail.com
